@@ -1,0 +1,21 @@
+# Direção da Noite
+
+- Boas vindas
+- Leitura: Salmo 105.1-9 NVI _(incentivar e convidar os irmãos ao louvar e exultação de Deus)_
+- Música: Cantarei
+- Música: Incomparável
+- Oração de louvor a Deus
+- Participação: a confirmar
+- Música: 96. Deslumbrante
+    - _Comentário: Destacar o trecho: "Para termos nós com Ele franca e doce comunhão, Cristo, o Filho, fez-se carne, fez-se nossa redenção". Era necessário que Cristo se fizesse carne para que a vida se manifestasse em nós e nós voltássemos a ter paz com Deus. A encarnação de Cristo é grande motivo de glorificá-lo._
+- Leitura: Isaías 9.1-7
+    - _Comentário: A encarnação de Cristo é motivo de grande alegria ao seu povo (verso 3), pois Ele nos libertaria do julgo sob o qual estávamos presos (verso 4)._
+- Música: 28. Nasceu o Redentor _(cantar com alegria, pois o Cristo nasceu e nos foi dado como Salvador)_
+- Música: O amor de Jesus é maravilhoso _(o amor de Cristo nos é manifestado através da sua encarnação)_
+- Leitura: João 1.1-14
+    - _Comentário: Este texto testifica a nós que o Verbo, a Luz, o próprio Deus, ele mesmo é Cristo Jesus que encarnou para tornar filhos de Deus os que creem em seu nome._
+- Música: Quebrantado _(nos rendemos a Deus por causa de tão grande amor!)_
+- Música: Eu nasci de novo _(apenas os que creem em Cristo experimentam a rendenção em Cristo e podem dizer: "eu nasci de novo")_
+- Oração de agradecimento e louvor a Deus por sua salvação manifestada a nós
+- Mensagem da noite: Pr Luiz Rodrigues
+- Avisos _(no final do culto)_
